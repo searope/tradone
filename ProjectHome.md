@@ -1,0 +1,1 @@
+The site is to help people to sell their staff online.
